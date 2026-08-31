@@ -1,2 +1,11 @@
 # Fillip Holm Andersen
 ### Hei! Jeg er Fillip og jeg liker å kode. Jeg vibbe koder aller mest, jobber mer med vanlig kode nå for tiden. Jeg elsker microsoft fligth simulator, være aktiv og å henge men venner på fritiden:)
+
+- #### **Tennis🎾**
+- #### **MSFS 2024🛫**
+- #### **Bading🩳🛀**
+- #### **Henge med venner**
+- #### **Vibe coding👨‍💻**
+- #### **Politikk😠**
+- #### **Internatlivet🏘️**
+- #### **🍎Skole👨‍🏫**
