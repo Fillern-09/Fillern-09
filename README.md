@@ -15,4 +15,4 @@ Grunnen til at jeg valgte å gå informansjons teknologi og mediekomunikasjon er
 Jeg håper og lære masse gøy og inntresant. Jeg håper at jeg kan vokse dette året og bli så god som mulig. Jeg håper også at jeg blir mer klar for lærling tida etter skole året
 
 Lenke til Gjennestad sin nettside:
-https://www.gjennestadvgs.no
+https://www.gjennestadvgs.no 🌍
