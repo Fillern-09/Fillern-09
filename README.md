@@ -4,7 +4,7 @@
 - #### **Tennis🎾**
 - #### **MSFS 2024🛫**
 - #### **Bading🩳🛀**
-- #### **Henge med venner**
+- #### **Henge med venner🫂**
 - #### **Vibe coding👨‍💻**
 - #### **Politikk😠**
 - #### **Internatlivet🏘️**
